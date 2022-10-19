@@ -1,1 +1,1 @@
-# spirits_of_the_wild
+# Spirits of the wild
